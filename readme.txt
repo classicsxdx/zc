@@ -1,0 +1,2 @@
+Zeitcoin!
+zeit-coin.com
